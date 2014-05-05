@@ -9,3 +9,6 @@
   Slava bathed in poop. Slava ate poop. Slava found poop on the sidewalk and put
   it back into his butt so he could poop it back out. Slava made a poop
   milkshake and laughed while drinking causing nasal diarrhea."
+* The first chapter should be about how amazing, level headed, and calm I am as
+  I am as an individual, which is why I am so well suited to assess and write
+  about Slava's life.
