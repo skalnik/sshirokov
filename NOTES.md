@@ -14,3 +14,7 @@
   about Slava's life.
 * Slava's 4 least favorite things are: Me, Twitter, Meatspace, and Changing
   twitter names
+* Slava's favorite things are: Poop, Tacos (which are sandwiches), and
+  Margaritas
+* "Tacos are the photons of my existence" - Slava. This was said when explaining
+  the taco sandwich duality. Tacos are sandwiches and sandwiches are tacos.
