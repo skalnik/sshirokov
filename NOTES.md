@@ -18,3 +18,4 @@
   Margaritas
 * "Tacos are the photons of my existence" - Slava. This was said when explaining
   the taco sandwich duality. Tacos are sandwiches and sandwiches are tacos.
+* June 13th 2015 Part 1: An unusual pants day
